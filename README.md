@@ -1,1 +1,0 @@
-# konsel.github.io
